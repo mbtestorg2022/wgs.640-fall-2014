@@ -153,7 +153,7 @@ Challenges to Gender and Sexuality
 
 Boag, Peter. "[Go West Young Man, Go East Young Woman: Searching for the Trans in Western Gender History](http://www.jstor.org/stable/25443237)." _Western Historical Quarterly_ 36, no. 4 (2005): 477–98.
 
-Connell, Raewyn. ![This resource may not render correctly in a screen reader.](/images/inacessible.gif)"[Transsexual Women and Feminist Thought: Toward New Understanding and New Politics](http://dx.doi.org/10.1086/664478 )." _Sex: A Thematic Issue Signs_ 37, no. 4, (2012): 857–81.
+Connell, Raewyn. "[Transsexual Women and Feminist Thought: Toward New Understanding and New Politics](http://dx.doi.org/10.1086/664478 )." _Sex: A Thematic Issue Signs_ 37, no. 4, (2012): 857–81.
 
 Schlatter, Evelyn A. "Drag's a Life: Women, Gender, and Cross–Dressing in the Nineteenth–Century West." In _Writing the Range: Race, Class, and Culture in the Women's West._ Edited by Elizabeth Jameson and Susan Armitage. University of Oklahoma Press, 1997, pp. 334–48. \[Preview with [Google Books](http://books.google.com/books?id=WzBr2tJYgGoC&pg=PA334=onepage)\]
 
