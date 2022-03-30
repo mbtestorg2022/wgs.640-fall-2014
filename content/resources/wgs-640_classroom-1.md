@@ -7,6 +7,7 @@ image_metadata:
   caption: ''
   credit: ''
   image-alt: ''
+parent_uid: eefc4b17-2871-075f-6d7f-b997317dd801
 resourcetype: Image
 title: WGS-640_classroom-1
 uid: 3ed84129-8aa7-e5cc-2edd-5e0a27eb9197
